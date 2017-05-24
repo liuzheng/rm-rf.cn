@@ -1,1 +1,1 @@
-Please goto [ilz.me]<http://ilz.me>
+Please goto <http://ilz.me>
